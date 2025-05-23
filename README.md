@@ -60,7 +60,7 @@ Built a stronger commitment to social responsibility.
 
 📸 Moments Captured
 Images included in the report document joyful interactions, heartfelt connections, and meaningful service.
-https://drive.google.com/drive/folders/11kga53skyIjzb3dD0Ste83ef5Udkpp_K
+Have a look here-https://drive.google.com/drive/folders/11kga53skyIjzb3dD0Ste83ef5Udkpp_K
 
 🧾 Conclusion
 This project was more than a community service—it was a life-changing experience that fostered compassion, connection, and holistic care for the elderly. The time at Akshaya Trust reaffirmed the importance of dignity, respect, and joy in the lives of our senior citizens.
